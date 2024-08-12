@@ -1,0 +1,1 @@
+# projeto-intelig-ncia-artificial
